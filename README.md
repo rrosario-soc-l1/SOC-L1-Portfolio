@@ -45,5 +45,5 @@ Estoy en búsqueda activa de mi primera oportunidad como **Analista de SOC Nivel
 
 *   **LinkedIn:** www.linkedin.com/in/ricardo-rosario-b8169211b
 *   **Email:** Ricardo.rosario1970@gmail.com
-*   **Whatsapp: ** 58-414-3114089
+*   **Whatsapp: 58-414-3114089
 *   **Ubicación:** Caracas, Venezuela (Abierto a trabajo remoto).
